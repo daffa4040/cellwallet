@@ -1,7 +1,7 @@
 # Cell Mega Wallet Bot
 Cell Wallet Bot
 
-Register Here : [CellWa](https://t.me/cellcoin_bot?start=1330939241)
+Register Here : [CellWallet](https://t.me/cellcoin_bot?start=1330939241)
 
 Jika anda suka Alat kami Bergabung dengan komunitas kami Gratis untuk diskusi dan update lebih cepat dan lebih banyak Alat lain nya
 
